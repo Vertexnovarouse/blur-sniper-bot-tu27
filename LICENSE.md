@@ -1,4 +1,4 @@
-# 
+# Enhance your NFT trading with premium blur sniper bot | bundle-transactions + multi-wallet-support, the #1 blur sniper bot. Includes bundle-transactions and multi-wallet-support
 
 
 
